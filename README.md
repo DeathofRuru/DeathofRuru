@@ -1,6 +1,6 @@
 ## Hi there 👋
-# I'm ruru
-# Interact with me
+ I'm ruru
+Interact with me I'm **desperate**
 
 
 ## DNI
@@ -14,9 +14,37 @@ tcc*al
 h*zbin hotel
 
 ## INT
- people in the same fandom as me: < osc,pjsk,gi,hsr,doodle world,forsaken,paswg,bsd,persona4/5
-i could try fandoms 
 basically everyone except the ones on dni
+
+## Fandoms!!
+object show,
+pjsk,
+gi,
+hsr,
+doodle world,
+forsaken,
+paswg,
+bsd,
+persona4/5,
+vocaloid,
+madness combat, 
+every phycological game in rblx,
+dod,
+dbd,
+umamusume,
+skull girls,
+fnf,
+fnaf,
+alnst,
+reverse 666,
+chiikawa,
+magica madoka,
+scp,
+ace attorney 
+etc.  
+
+
+i could try fandoms 
 <!--  
 **DieathofRuru/DeathofRuru** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
