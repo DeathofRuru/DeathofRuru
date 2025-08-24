@@ -1,6 +1,6 @@
 ## Hi there 👋
-## I'm ruru
-## Interact with me
+# I'm ruru
+# Interact with me
 
 
 ## DNI
