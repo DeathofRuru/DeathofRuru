@@ -13,7 +13,8 @@ i am pansexual don't judge me or else I'll straight up block
 ## DNI
 d*blefedora shippers
 
-darkshippers (don't mistake proshipping as darkshipping)
+Dark shipping = when the pairing involves dark, problematic, or morally questionable elements.
+(don't mistake darkshippers as proshippers)
 
 people under 12
 
@@ -30,6 +31,8 @@ tcc!al
 h@zbin hotel
 
 ## INT
+Proshippers, it is an ideological stance within fandom that defends the freedom to create and consume any fictional ship, and opposes harassment against people for their fictional preference, dont be stupid on mistaking it for darkshipping
+
 basically everyone except the ones on dni
 
 ## Fandoms!!
