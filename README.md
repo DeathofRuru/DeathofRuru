@@ -7,6 +7,7 @@ you may know me as someone who loves ragebaiting
 I'm an architect in training, 
 i take commissions for my art
 (i code discord bots and websites for fun)
+## 🪷
 i am pansexual don't judge me or else I'll straight up block
 
 ## DNI
