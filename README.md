@@ -1,7 +1,7 @@
 ## Hi there 👋
  I'm ruru
 Interact with me I'm **desperate**
-
+![Image](https://github.com/user-attachments/assets/2a4fa8f1-827b-4a3a-a483-fd38fd13fc3f)
 ## I JUST LOVE PAYCHECK 
 
 ## DNI
