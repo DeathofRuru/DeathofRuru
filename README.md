@@ -37,6 +37,8 @@ object show
 
 pjsk
 
+**POKEMON**
+
 gi
 
 hsr
@@ -44,6 +46,8 @@ hsr
 doodle world
 
 forsaken
+
+arsenal 
 
 paswg
 
