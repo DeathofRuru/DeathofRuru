@@ -13,8 +13,8 @@ people under 12
 homophobic people 
 transphobic people 
 cultist 
-tcc*al 
-h*zbin hotel
+tcc!al 
+h@zbin hotel
 
 ## INT
 basically everyone except the ones on dni
