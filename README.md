@@ -44,7 +44,7 @@ reverse 666,
 chiikawa,
 magica madoka,
 scp,
-ace attorney 
+ace attorney,
 etc.  
 
 
