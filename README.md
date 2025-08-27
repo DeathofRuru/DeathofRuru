@@ -13,13 +13,15 @@ i am pansexual don't judge me or else I'll straight up block
 ## DNI
 d*blefedora shippers
 
-darkshippers
+darkshippers (don't mistake proshipping as darkshipping)
 
 people under 12
 
 homophobic people 
 
-transphobic people 
+transphobic people
+
+M@ppr*de 
 
 cultist 
 
