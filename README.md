@@ -12,12 +12,19 @@ i am pansexual don't judge me or else I'll straight up block
 
 ## DNI
 d*blefedora shippers
+
 darkshippers
+
 people under 12
+
 homophobic people 
+
 transphobic people 
+
 cultist 
-tcc!al 
+
+tcc!al
+
 h@zbin hotel
 
 ## INT
