@@ -31,30 +31,54 @@ h@zbin hotel
 basically everyone except the ones on dni
 
 ## Fandoms!!
-object show,
-pjsk,
-gi,
-hsr,
-doodle world,
-forsaken,
-paswg,
-bsd,
-persona4/5,
-vocaloid,
-madness combat, 
-every phycological game in rblx,
-dod,
-dbd,
-umamusume,
-skull girls,
-fnf,
-fnaf,
-alnst,
-reverse 666,
-chiikawa,
-magica madoka,
-scp,
-ace attorney,
+object show
+
+pjsk
+
+gi
+
+hsr
+
+doodle world
+
+forsaken
+
+paswg
+
+bsd
+
+persona4/5
+
+vocaloid
+
+madness combat 
+
+every phycological game in rblx
+
+dod
+
+dbd
+
+umamusume
+
+skull girls
+
+fnf
+
+fnaf
+
+alnst
+
+reverse 666
+
+chiikawa
+
+magica madoka
+
+scp foundation
+
+ace attorney
+
 etc.  
 
 
