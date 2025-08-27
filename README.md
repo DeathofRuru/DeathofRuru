@@ -48,7 +48,7 @@ ace attorney,
 etc.  
 
 
-i could try fandoms 
+i could try learning new fandoms 
 <!--  
 **DieathofRuru/DeathofRuru** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
