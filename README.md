@@ -28,6 +28,8 @@ cultist
 
 tcc!al
 
+rct@
+
 h@zbin hotel
 
 ## INT
@@ -48,13 +50,31 @@ hsr
 
 doodle world
 
+work at a pizza place
+
+npcs are becoming smart (live laugh carl)
+
+myths
+
+flamingo/albert
+
 forsaken
 
 arsenal 
 
+tbhk
+
+omori
+
 paswg
 
 bsd
+
+malice mizer
+
+sewh 
+
+regretavator 
 
 persona4/5
 
@@ -64,9 +84,25 @@ madness combat
 
 every phycological game in rblx
 
+touhou 
+
+Ado
+
+trud
+
 dod
 
 dbd
+
+md
+
+may madness 12
+
+frozen soul/dream game
+
+mouthwashing
+
+welcome home
 
 umamusume
 
