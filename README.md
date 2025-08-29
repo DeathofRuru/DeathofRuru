@@ -35,6 +35,8 @@ cultist
 
 tcc!al
 
+Alfr*d's pl@yhouse (bro it doesn't even deserve a fandom)
+
 rct@
 
 h@zbin hotel
