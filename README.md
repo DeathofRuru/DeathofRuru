@@ -1,4 +1,7 @@
 ## Greetings! I am Ruru
+
+i kin chance
+
 you may know me as someone who loves ragebaiting
 
 
