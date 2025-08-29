@@ -35,7 +35,7 @@ cultist
 
 tcc!al
 
-Alfr*d's pl@yhouse (bro it doesn't even deserve a fandom)
+Alfr*d's pl@yhouse (it doesn't even deserve a fandom)
 
 rct@
 
