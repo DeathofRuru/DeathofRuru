@@ -8,9 +8,9 @@ i kin chance
 hits you with angst
 ![Image](https://github.com/user-attachments/assets/2a4fa8f1-827b-4a3a-a483-fd38fd13fc3f)
 ## I JUST LOVE PAYCHECK 
-I'm an architect in training, 
+training 
 i take commissions for my art
-(i code discord bots and websites for fun)
+(i code for fun!)
 ## 🪷
 i am pansexual don't judge me or else I'll straight up block
 
