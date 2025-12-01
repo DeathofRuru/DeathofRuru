@@ -42,7 +42,7 @@ h@zbin hotel
 
 ## INT
 Proshippers, it is an ideological stance within fandom that defends the freedom to create and consume any fictional ship, and opposes harassment against people for their fictional preference, dont be stupid on mistaking it for darkshipping
-
+(only for the ones who doesnt support darkships)
 basically everyone except the ones on dni
 
 ## Fandoms!!
