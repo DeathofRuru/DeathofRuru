@@ -32,17 +32,20 @@ M@ppr*de
 
 cultist 
 
-tcc!al
+tcc!al fans
 
-Alfr*d's pl@yhouse (it doesn't even deserve a fandom)
+Alfr*d's pl@yhouse fans
 
-rct@
+rct@ people 
 
-h@zbin hotel
+h@zbin hotel fans
+
+proshippers who supports d@rkships
 
 ## INT
 Proshippers, it is an ideological stance within fandom that defends the freedom to create and consume any fictional ship, and opposes harassment against people for their fictional preference, dont be stupid on mistaking it for darkshipping
-(only for the ones who doesnt support darkships)
+(only for the ones who doesnt support d@rkships)
+
 basically everyone except the ones on dni
 
 ## Fandoms!!
@@ -76,6 +79,10 @@ arsenal
 
 tbhk
 
+hxh
+
+hetalia
+
 omori
 
 paswg
@@ -98,7 +105,9 @@ every phycological game in rblx
 
 touhou 
 
-Ado
+Minecraft args
+
+Ado(YES ADO THE BEST SINGER)
 
 trud
 
@@ -125,6 +134,8 @@ fnf
 fnaf
 
 alnst
+
+death note
 
 reverse 666
 
