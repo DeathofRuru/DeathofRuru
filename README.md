@@ -2,10 +2,7 @@
 
 i kin chance
 
-you may know me as someone who loves ragebaiting
-
-
-and i really love psychological games 
+ i really love psychological games 
 
 
 hits you with angst
